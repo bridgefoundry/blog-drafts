@@ -30,4 +30,4 @@ We've developed the following categories to help us brainstorm future blog posts
 
 ## Publishing a post
 
-Ready to have your post published?  After a draft is tagged as ready the outreach committee will give it a +1 and move it over to the blog.
+Ready to have your post published?  After a draft is tagged as ready the outreach committee will give it a +1 and move it over to the blog.  All feedback is welcome. 
