@@ -30,4 +30,15 @@ We've developed the following categories to help us brainstorm future blog posts
 
 ## Publishing a post
 
-Ready to have your post published?  After a draft is tagged as ready the outreach committee will give it a +1 and move it over to the blog.  All feedback is welcome. 
+Ready to have your post published?  Make a note that it is ready for review in the comments and post on the [Bridge Foundry mailing list](https://groups.google.com/forum/#!forum/bridgefoundry) for feedback or send to other folks who were involved in the story.  After someone besides the author (or most recent editor) has reviewed and added their :+1: in the comments, we'll tag is as ready and move it over to the blog.  
+
+
+## Join the Outreach Team!
+
+Send an email to hello@bridgefoundry.org and let us know you are interested.  All we need is a passion to make a positive difference in the world and willingness to help.  Time commitment can be intermittent or regular, just let us know what to expect.  
+
+We are actively looking to add more writers and a designer to the team, but we also need help simply reviewing and commenting on posts, writing up short news items, and moving files around.  Many hands make light work!
+
+
+
+
